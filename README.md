@@ -17,6 +17,9 @@
     フィルターバブルについて
 
 # PPの構成
+
+https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISLFZI7FCpWd1DmXdp5IB6WtfJkzxG4OrLvCSKsQhHw?e=NUVfTz
+
     ~5 Intro（かろ）   [BBCニュース]スパゲッティーの木　動画
                 日本学術議会のありかた　一瞬見せる
     5 解説（１人）  偏見報道-トランプvsバイデンの対立構造について
