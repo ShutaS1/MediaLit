@@ -26,7 +26,7 @@ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISL
             (誰かRLS見つけて偏向報道の手法を解説)
             
     50 実際にやってもらう（６人）　テーマ3つ決めて二人ずつに情報収集を割り振る
-            テーマ　薬物使用について　安楽死　オンライン授業　
+            テーマ　薬物使用について　安楽死　言論の自由
         媒体：新聞、ラジオ、ニュースなど
         
 
