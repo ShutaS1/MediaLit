@@ -26,14 +26,14 @@ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISL
             (誰かRLS見つけて偏向報道の手法を解説)
             
     50 実際にやってもらう（６人）　テーマ3つ決めて二人ずつに情報収集を割り振る
-            テーマ　薬物使用について「さかなか　あらはる」　安楽死「いいざわ　ソ連」　言論の自由「まんまん　かいふみは」
+            テーマ　薬物使用について[さかなか　あらはる]　安楽死[いいざわ　ソ連]　言論の自由[まんまん　かいふみは]
         媒体：新聞、ラジオ、ニュースなど
         
 
     30発表
 
 
-# 去年の資料
+# 40kからの資料
     去年のパワポ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/ETq80q_6yo1GsyzjjKgX8u8BzIJtKdoAp9XzfdpZrkCEvg?e=aiXVWa
     班ごとの資料 https://drive.google.com/drive/folders/13aHp-WTKRwMWx5dD0WU-5yqalBMEinom?usp=sharing
 
