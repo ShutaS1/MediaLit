@@ -22,6 +22,7 @@ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISL
                 [BBCニュース]スパゲッティーの木　動画
                 日本学術議会のありかた　一瞬見せる
                 校長のビデオ「権威のバイアス」
+    5 メディアとは（ぽこ）　概要説明
     5 解説（検事長）  偏向報道-トランプvsバイデンの対立構造について
             (誰かRLS見つけて偏向報道の手法を解説)
             
