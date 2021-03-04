@@ -35,7 +35,7 @@ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISL
 
 
 # 40kからの資料
-    去年のパワポ ```https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/ETq80q_6yo1GsyzjjKgX8u8BzIJtKdoAp9XzfdpZrkCEvg?e=aiXVWa```
-    班ごとの資料 https://drive.google.com/drive/folders/13aHp-WTKRwMWx5dD0WU-5yqalBMEinom?usp=sharing
+ 去年のパワポhttps://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/ETq80q_6yo1GsyzjjKgX8u8BzIJtKdoAp9XzfdpZrkCEvg?e=aiXVWa
+ 班ごとの資料 https://drive.google.com/drive/folders/13aHp-WTKRwMWx5dD0WU-5yqalBMEinom?usp=sharing
 
 
