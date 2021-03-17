@@ -40,4 +40,4 @@ https://meikei-my.sharepoint.com/:p:/g/personal/k41shibue_st_meikei_ac_jp/EcNISL
  
  班ごとの資料 https://drive.google.com/drive/folders/13aHp-WTKRwMWx5dD0WU-5yqalBMEinom?usp=sharing
 
-
+# まんまん妹と同じクラスね
